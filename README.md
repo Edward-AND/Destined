@@ -1,8 +1,8 @@
-# Privacy Policy for AI Destiny Master
+# Privacy Policy for Destined
 
 ## 1. Introduction
 
-Welcome to AI Destiny Master (hereinafter referred to as "this Application"). This Privacy Policy is designed to inform you about how we collect, use, store, and protect your personal information. We are committed to protecting your privacy and ensuring the security of your data.
+Welcome to Destined (hereinafter referred to as "this Application"). This Privacy Policy is designed to inform you about how we collect, use, store, and protect your personal information. We are committed to protecting your privacy and ensuring the security of your data.
 
 ## 2. Data We Collect
 
