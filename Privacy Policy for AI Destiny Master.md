@@ -63,7 +63,7 @@ We may update this Privacy Policy from time to time. The updated policy will be 
 
 If you have any questions or suggestions regarding this Privacy Policy, please contact us through:
 
-[Add your contact information here]
+z.morphling@gmail.com
 
 ## 9. Effective Date
 
